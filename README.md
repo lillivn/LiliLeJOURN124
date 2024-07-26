@@ -1,1 +1,3 @@
 # LiliLeJOURN124
+The reason that I chose this question was due to my curioisty on reclining seats as it has been a hot debate that I have had with my friends. There are never strict etiquette when on a plane casuing many behaviorial questions being brought up. The chart show that a greater majority of those surveyed, who wrote down an answer, would choose not to emilinate the possibilty of reclining seats. Reading and sifting thorugh these answers made me rethnk what I do at airports. 
+![alt text](7Nwml-given-the-opportunity-would-you-eliminate-the-possibility-of-reclining-seats-on-planes-entirely-.jpg)
